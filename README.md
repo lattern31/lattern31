@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lattern31
-- 👀 I’m interested in laying in bed for weeks
+- 👀 I’m interested in lying in bed for weeks
 - 🌱 I’m currently learning to make myself motivated for daily routine
 - 💞️ I’m looking to collaborate on?
 - 📫 How to reach me ...
